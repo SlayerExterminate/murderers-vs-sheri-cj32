@@ -1,4 +1,4 @@
-
+Experience murderers vs sheriffs 2 like never before with murderers vs sheriffs 2 updated Scripts, the #1 Script. Includes god mode and invisibility
 
 
 
